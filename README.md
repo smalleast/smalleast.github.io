@@ -1,1 +1,0 @@
-# smalleast.github.io
